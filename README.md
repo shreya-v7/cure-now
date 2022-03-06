@@ -1,1 +1,1 @@
-# CURE.NOW
+# CURE NOW
